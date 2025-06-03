@@ -1,7 +1,21 @@
 import type { UserConfig } from '~/types'
 
 export const userConfig: Partial<UserConfig> = {
-  // Override the default config here
-  // site: { title: "講評世界" },
-  // seo: { twitter: "@moeyua13" },
+  // Set the site language to English
+  locale: 'en-us',
+
+  site: {
+    title: 'Abdul\'s Blog',
+    subtitle: 'thoughts and writings, in a digital format.',
+    author: 'Abdul Nawab',
+  },
+
+  theme: {
+    themeStyle: 'light', // Options: 'light' | 'dark' | 'system'
+  },
+
+  // seo: { twitter: "@yourhandle" },
+  // socials: [
+  //   { name: 'github', href: 'https://github.com/yourusername' }
+  // ],
 }

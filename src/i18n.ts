@@ -32,7 +32,7 @@ export const LANGUAGES = {
     About: 'About',
     Links: 'Links',
 
-    posted_at: 'Posted at',
+    posted_at: 'Posted on',
     updated_at: 'Updated at',
     tag_count: '%d tags',
     archive_count: '%d post',
