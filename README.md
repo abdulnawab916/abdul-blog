@@ -22,3 +22,9 @@ pnpm theme:create
 ```bash
 pnpm install
 ```
+
+To run the project locally
+
+```bash
+pnpm dev
+```
