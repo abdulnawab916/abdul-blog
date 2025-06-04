@@ -37,8 +37,156 @@ Now, not everybody is perfect of course, and I don’t disregard your flaws. But
 
 ### Act 2: Independence
 
-To be continued
+I began learning what it truly meant to be a man the moment you left. When you left, a part of me left too. That moment, that loss, was when the lesson began.
+
+It might not make sense at first, but losing you is what helped me begin to understand. The answer to my question wasn’t something you could’ve handed to me. It was something I had to discover on my own.
+
+When you left, the weight fell on me.
+
+Who would carry the family name?
+
+Who would protect our legacy?
+
+The day you left was the day my path began to take shape. I started to find meaning in everything.
+Before, I took so much for granted, even the simple gift of breath. But Baba, your absence became the foundation.
+
+You laid the first bricks of the road I now walk.
+You lit the way forward. Where I am today, at Davis, studying Engineering, that’s your doing.
+
+You are the one who paved the way, Baba.
+
+Then, envy crept in.
+
+I wanted what others had.
+
+I wanted what my peers had, fathers.
+
+They didn’t even realize what they were holding.
+
+They took that shit for granted.
+
+They never imagined a day where their parents simply… weren’t there.
+
+They didn’t understand my pain.
+
+They never felt the emptiness I carried.
+
+My heart felt hollow, filled with a silence that could never be replaced.
+
+I was so alone. How could you leave me?
+
+How could you leave so early?
+
+I was just getting started in life.
+
+Grief etched itself into my chest like permanent ink.
+
+No matter how goddamn hard I tried to scrub it off, it stayed.
+
+This became my reality.
+
+I would make a round-trip to hell and back for you, Baba, if it meant I could see you again.
+
+I would give anything, anything, to hear your voice, even for a fraction of a second.
+
+That would be a gift from God, left at my doorstep.
+
+I just wanted to be normal again.
+
+I wanted to feel like myself.
+
+I wanted you back in my arms, Baba.
+
+I just wanted to hear your voice.
+
+One. More. Time.
+
+But that’s not how life works.
+
+I’ve learned how to be alone.
+
+I’ve had to sit with this feeling.
+
+Ponder it. Befriend it.
+
+Understand it.
+
+And I think… maybe a part of me knew:
+
+> > I could never truly understand myself with you still here.
+
+This was where I had to learn to stand on my own.
+
+To learn how I was wired.
+
+To learn how to cope.
+
+Your passing was my transition, from a **boy**, to a **man**.
 
 ### Act 3: Peace, and Clarity
 
-To be continued
+Grief has become my closest friend since you left.
+
+I feel his presence beside my shoulder, heavy, unshakeable.
+
+He walks with me, step for step.
+
+Whether I’m heading toward something good or something painful, he’s there.
+
+They say grief comes in waves.
+
+But for me, it’s been one endless surge, a killer wave that never pulled back.
+
+No quiet lows.
+
+No gentle pauses.
+
+Just the highs, Baba.
+
+No breath, just drowning.
+
+Restlessness is the one emotion I’ve come to know best.
+
+It keeps me awake at night.
+
+You visit me in those quiet hours.
+
+And no matter how hard I try,
+
+I can’t shake the weight of your absence.
+
+Over the years, I’ve argued with that weight.
+
+I used to hate it,
+used to fight it, run from it.
+
+But slowly, I began to understand it.
+
+And strangely, that’s where peace first crept in.
+
+Not because grief left - he never did.
+
+But because I stopped resisting.
+
+I stopped trying to escape.
+
+Grief became a mirror,
+
+reflecting who I was becoming.
+
+He taught me that pain could live alongside purpose.
+
+That sorrow didn’t erase stillness.
+
+Peace wasn’t the absence of grief.
+
+Peace was learning to live with him.
+
+To breathe with him.
+
+To walk, not ahead, not behind,
+
+but side by side.
+
+And that…
+That was the **beginning** of my life, Dad.
